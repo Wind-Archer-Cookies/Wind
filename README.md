@@ -5,7 +5,6 @@
 ![Không Có Tiêu Đề131_20241129190941](https://github.com/user-attachments/assets/675cf95d-d0f2-4aa4-b754-ac6bfe2bd371)
 
 ![wind-archer-cookie-wind-archer](https://github.com/user-attachments/assets/22c779db-58df-42df-ab89-ce604cd6c44c)
-![wind-archer-cookie-wind-archer](https://github.com/user-attachments/assets/22c779db-58df-42df-ab89-ce604cd6c44c)
 
 
 
