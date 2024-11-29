@@ -4,5 +4,8 @@
 ![tumblr_b509016fdeee2ffa63536392e0bc79f4_0733d90e_400](https://github.com/user-attachments/assets/8e4836a9-3d44-4504-b12b-2f6c27725c9a)
 ![Không Có Tiêu Đề131_20241129190941](https://github.com/user-attachments/assets/675cf95d-d0f2-4aa4-b754-ac6bfe2bd371)
 
+![wind-archer-cookie-wind-archer](https://github.com/user-attachments/assets/22c779db-58df-42df-ab89-ce604cd6c44c)
+![wind-archer-cookie-wind-archer](https://github.com/user-attachments/assets/22c779db-58df-42df-ab89-ce604cd6c44c)
+
 
 
